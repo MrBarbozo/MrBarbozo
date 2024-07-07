@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MrBarbozo
+- This account is made to show off the code I make in my frretime, along with any I make whilst at school.
+-  Reach me at raphaelpjbarbosa@outlook.com or raphaelpjbarbosa@gmail.com.
+-  Im not that experienced in coding so dont really expecxt much at all from me.
+-  Also its worth mentioning most my codes are cow boy themed so there wont be much use in using them to cheat on your computer science tests :/. 
